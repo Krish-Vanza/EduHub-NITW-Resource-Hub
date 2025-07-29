@@ -1,1 +1,1 @@
-# EduHub---NITW-Resource-Hub
+# EduHub---NITW-Resource-Hu
